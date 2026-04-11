@@ -3,4 +3,4 @@
 
 # i do not ship uisaki/hatsusaki
 
-btw if you see me cuddling with a low quality soyo pony that's my alt, meaning all my friends are offline and i'm bored (⁠ ⁠◜⁠‿⁠◝⁠ ⁠)⁠♡
+plspls BMF I'm friendly i don't bite plsplss trust ☺️
