@@ -4,3 +4,5 @@
 # i do not ship uisaki/hatsusaki
 
 plspls BMF I'm friendly i don't bite plsplss trust ☺️
+
+forgive me to those i followed and immediately unfollowed after in this account i forgot i was in my maun not my spam follow acc 😓😓
